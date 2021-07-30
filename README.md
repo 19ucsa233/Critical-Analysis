@@ -1,2 +1,0 @@
-# Critical-Analysis
-Research Papers
